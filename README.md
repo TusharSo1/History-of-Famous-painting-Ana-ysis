@@ -1,1 +1,1 @@
-# History-of-Famous-painting-Ana-ysis
+# History-of-Famous-painting-Analysis
